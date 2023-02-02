@@ -1,1 +1,1 @@
-# wallpapers for yor device
+# wallpapers for your device
